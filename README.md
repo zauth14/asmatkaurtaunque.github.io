@@ -1,1 +1,0 @@
-# asmatkaurtaunque.github.io
